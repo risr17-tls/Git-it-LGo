@@ -1,1 +1,2 @@
 Bonjour !
+Bonne journée !
